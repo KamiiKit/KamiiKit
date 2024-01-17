@@ -1,4 +1,4 @@
-![](https://im2.ezgif.com/tmp/ezgif-2-56f17504be.gif)
+![](https://im2.ezgif.com/tmp/ezgif-2-7f6d8040ae.gif)
 
 <h1 align="center">₊˚✧🌷Hii, I'm Kitana 🌷₊˚✧</h1>
 <h3 align="center">I love coding ,I'm sleep deprived and addicted to playing games till 5 am.</h3>
