@@ -1,4 +1,4 @@
-![](https://i.pinimg.com/originals/ca/9f/e9/ca9fe9e1c1aad2d7767cf7dfb9396540.gif)
+![](https://i.pinimg.com/originals/0f/6b/39/0f6b392bab1f24d191d9ff5e3df27c5f.jpg)
 
 <h1 align="center">₊˚✧🌷Hii, I'm Kitana 🌷₊˚✧</h1>
 <h3 align="center">I love coding ,I'm sleep deprived and addicted to playing games till 5 am.</h3>
