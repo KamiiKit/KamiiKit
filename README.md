@@ -1,4 +1,4 @@
-![](https://i.pinimg.com/originals/0f/6b/39/0f6b392bab1f24d191d9ff5e3df27c5f.jpg)
+![](https://im2.ezgif.com/tmp/ezgif-2-56f17504be.gif)
 
 <h1 align="center">₊˚✧🌷Hii, I'm Kitana 🌷₊˚✧</h1>
 <h3 align="center">I love coding ,I'm sleep deprived and addicted to playing games till 5 am.</h3>
@@ -10,7 +10,7 @@
 
  ∘₊✧──────✧₊∘ »»———-　✩　———-«« ∘₊✧──────✧₊∘ 
  
- ♡🌷 I’m interested in making cute games <3
+ ♡🌷 I’m interested in making games <3
 
  ♡🍓 I’m currently learning **HTML, CSS, CS on freeCodeCamp.**
 
