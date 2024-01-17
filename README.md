@@ -1,7 +1,7 @@
 ![](https://im2.ezgif.com/tmp/ezgif-2-7f6d8040ae.gif)
 
 <h1 align="center">₊˚✧🌷Hii, I'm Kitana 🌷₊˚✧</h1>
-<h3 align="center">I love coding ,I'm sleep deprived and love playing games.</h3>
+<h3 align="center">I love coding ,games and I'm sleep deprived.</h3>
 <img align="right" alt="Coding" width="400" src="https://i.pinimg.com/originals/8d/03/73/8d0373bd72b358519351806471edad97.gif"
 
 
