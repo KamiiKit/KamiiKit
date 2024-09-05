@@ -14,8 +14,6 @@
 
  ♡🍓 I’m currently learning **HTML, CSS, CS on freeCodeCamp.**
 
- ♡🌸 How to reach me **Discord - Kami_Kit**
-
  ♡🍒 I would love any advice.
 
  ♡🫧 Hope you have a great dayyy <33
